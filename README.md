@@ -1,1 +1,1 @@
-# cybersecurity-stident-IT-support-aspiring-cybersecurity-professionals-
+# cybersecurity- student-IT-support-aspiring-cybersecurity-professionals-
